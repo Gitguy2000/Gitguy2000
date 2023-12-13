@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gitguy2000
-- 👀 I’m interested in ...N/A
+- 👀 I’m interested in ...Coding Robot´s
 - 🌱 I’m currently learning ...N/A (ROBOT CODER)
 - 💞️ I’m looking to collaborate on ... CODING
 - 📫 How to reach me ...N/A
